@@ -10,6 +10,7 @@
 [ata](https://voxp0puli.atabook.org) ⸝⸝ ⧽ ⸝⸝ [straw](https://v0xp0puli.straw.page)
 
 $${\color{blue}ASK\space BEFORE\space YOU\space C+H\space WITH\space ME\space !}$$	
+$${\color{blue}DONT\space COPY\space OR\space TAKE\space INSPO\space OFF\space MY\space PONIES\space PLEASE\space !}$$	
 
 ![tumblr_084b51adfb14cfa451f6f0a00ba4fe15_286a859c_100 (1)](https://github.com/user-attachments/assets/f98c9fbe-666e-4943-be2a-f09d50cc85f1)
 ![tumblr_c3530d73b5e34eb91126a463a0dcdb9c_56c4c316_250 (1)](https://github.com/user-attachments/assets/0609b13e-6d28-42bd-b3e0-e97e4b06673f)
