@@ -7,7 +7,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lexend&size=27&pause=1000&color=242DE8&width=435&lines=TRUST+US%2C+WITH+YOUR+SAFETY+.)](https://git.io/typing-svg)
 </p>
 
-[ata](https://voxp0puli.atabook.org) ⸝⸝ ⧽ ⸝⸝ [straw](https://v0xp0puli.straw.page)
+[ata](https://voxp0puli.atabook.org) ⸝⸝ ⧽ ⸝⸝ [straw](https://cheskipp1ng.straw.page)
 
 $${\color{blue}ASK\space BEFORE\space YOU\space C+H\space WITH\space ME\space !}$$	
 $${\color{blue}DONT\space COPY\space OR\space TAKE\space INSPO\space OFF\space MY\space PONIES\space PLEASE\space !}$$	
